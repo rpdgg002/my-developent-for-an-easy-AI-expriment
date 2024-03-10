@@ -1,0 +1,1 @@
+# my-developent-for-an-easy-AI-expriment
